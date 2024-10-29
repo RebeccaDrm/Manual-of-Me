@@ -14,25 +14,25 @@
 
 ### My current working patterns are ...
 
-- first reading and understanding the tasak and after that I make a 
+- first reading and understanding the task. After that I make a brainstorming to have an idea and then I start step by step.
 
 ---
 
 ### I prefer communicating in these ways ...
 
-- add your points here
+- direct
 
 ---
 
 ### When receiving feedback, it’s important that ...
 
-- add your points here
+- it is constructive.
 
 ---
 
 ### When I’m stressed, the best way to support me is ...
 
-- add your points here
+- to give me a few minutes.
 
 ---
 
