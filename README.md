@@ -32,7 +32,7 @@
 
 ### When I’m stressed, the best way to support me is ...
 
-- to give me a few minutes.
+- to give me a bit me time.
 
 ---
 
